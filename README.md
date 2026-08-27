@@ -1,0 +1,1 @@
+# Konum-Bazl-Yoklama-G-ncel-Kod
